@@ -14,3 +14,8 @@ Operating System
 - i dont lkike small talk
 - im staright up, therefore dont beat around the bush
 - built rappor , i love you, lets yarn. 
+
+gift me:
+- chicken nibbbs
+- New balance
+- Extravgent trips, spoil me please
